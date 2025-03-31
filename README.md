@@ -1,11 +1,11 @@
 
 https://github.com/user-attachments/assets/8e9c0e59-3eb7-484d-aca0-c482c1f7e1be
 # Comprehensive-and-responsive-management-for-the-farm-machinery-service-workshop.-Expandable.-
-Integrated solution covering all key areas
+# Integrated solution covering all key areas
 
 🔥TRY NOW: https://kzmnnirlon9fyfv3pk5q.lite.vusercontent.net/
 
-🎥 VIDEO:  Uploading Belot full (2).mp4…
+🎥 📱 VIDEO: https://github.com/user-attachments/assets/aad040de-68aa-4a90-8462-323215d2eb20
 
 ✅ WORK ON: 📱 / 🖥️
 
